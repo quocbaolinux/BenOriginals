@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @BenOriginals
 - 👀 I’m interested in programming
-- 🌱 I’m currently learning grade 7
-- 💞️ I’m looking to collaborate on no one
+- 🌱 I’m currently learning grade 8
+- 💞️ I’m looking to collaborate with no one
 - 📫 How to reach me (I don't care when u come)
 
 <!---
